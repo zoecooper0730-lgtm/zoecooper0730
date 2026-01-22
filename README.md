@@ -27,7 +27,8 @@ Currently working as a **Product Support Specialist**, with a strong interest in
 
 ---
 
-### 📄 Resume & Contact
-- Resume: *(file:///C:/Users/zcoop/OneDrive/Documents/Resume26.pdf)*
+### 📄Contact
+- Email: *zoecooper.0730@gmail.com*
 - LinkedIn: *(https://www.linkedin.com/in/zoe-cooper-493a37231/)*
+- Handshake: *(https://app.joinhandshake.com/profiles/5zzvf7)*
 
