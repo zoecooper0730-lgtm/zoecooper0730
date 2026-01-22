@@ -1,1 +1,1 @@
-# zoecooper0730
+Computer Science graduate with a BS in Computer Science and hands-on experience in systems programming, networking protocols, and applied machine learning. Currently working as a Product Support Specialist, with a strong interest in transitioning into a software engineering role.
