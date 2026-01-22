@@ -28,6 +28,6 @@ Currently working as a **Product Support Specialist**, with a strong interest in
 ---
 
 ### 📄 Resume & Contact
-- Resume: *(https://www.linkedin.com/in/zoe-cooper-493a37231/)*
+- Resume: *(file:///C:/Users/zcoop/OneDrive/Documents/Resume26.pdf)*
 - LinkedIn: *(https://www.linkedin.com/in/zoe-cooper-493a37231/)*
 
